@@ -1,2 +1,2 @@
 # my-ugly-icons
-Do my best ^_^
+Doing my best ^_^
